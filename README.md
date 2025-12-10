@@ -1,1 +1,2 @@
 This app can use for test but im working on it Still Development Keep updates..
+You can use this app for quiz to your friends or student
